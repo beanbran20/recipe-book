@@ -20,6 +20,8 @@
   - Boil them
   - Use the bread scraps to scoop excess potato off of the cooking surface
   - pour a 1/3 cup of milk into the same place you put the potatoes
+  - mix the potatoes with the milk and pour in the deli meat
+  - enjoy your delectable delight
   
   ##Cooking Times
    - You gotta figure that out man
